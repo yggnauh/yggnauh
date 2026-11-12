@@ -7,8 +7,6 @@
 📫 怎么找到我：
 
 - 📧 [yggnauh@gmail.com](mailto:yggnauh@gmail.com)
-- 小红书：你的主页链接（待填）
-- 微信：你的微信号（待填）
 
 我在做的东西：
 
